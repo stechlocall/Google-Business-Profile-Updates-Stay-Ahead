@@ -31,6 +31,6 @@ Free tools and automation scripts for local SEO performance
 🧠 Learn More
 
 Read the complete guide here:
-👉 [Optimize Google Business Profile(https://learning-hub.stechlocal.com/fresh-trending/google-business-profile-updates/ | STech Local Learning Hub
-
-🔗 Visit STech Local for more local SEO insights and expert training resources.
+👉 [Optimize Google Business Profile(https://learning-hub.stechlocal.com/fresh-trending/google-business-profile-updates/ | [STech Local Learning Hub
+](earning-hub.stechlocal.com)
+🔗 Visit [STech Local](stechlocal.com) for more local SEO insights and expert training resources.
